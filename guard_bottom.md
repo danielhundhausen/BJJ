@@ -3,6 +3,16 @@
 Position: Closed guard bottom
 Goal: Submission attacks, retention
 
+## Breaking posture 
+High priority in bottom guard is to break the posture of the opponent.
+- Makes it harder for opponent to break guard
+- Opens up attacks from bottom
+
+### Vanilla Gi technique
+- Grab across body off opponent into collar (left hand to opponent's left collar)
+  - This must be done on the side of the posturing (straight) arm of opponent
+- Slide ellbow into the posturing elbow of opponent to bring elbow to an angle
+
 ## Attacking with an armbar
 
 ### As taught at Gacie Barra

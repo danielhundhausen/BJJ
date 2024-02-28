@@ -1,7 +1,7 @@
 # Guard Retention
 
-Position: On the floor, facing opponent
-Goal: Keep opponent in front of the legs
+*Position*: On the floor, facing opponent\
+*Goal*: Keep opponent in front of the legs
 
 ## General principles
 Source: [Gordon Ryan YouTube](https://www.youtube.com/watch?v=URGwWYwdoAs)

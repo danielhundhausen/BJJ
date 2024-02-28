@@ -1,7 +1,7 @@
 # Bottom Guard
 
-Position: Closed guard bottom
-Goal: Submission attacks, retention
+*Position*: Closed guard bottom\
+*Goal*: Submission attacks, retention
 
 ## Breaking posture 
 High priority in bottom guard is to break the posture of the opponent.

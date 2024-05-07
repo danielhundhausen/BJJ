@@ -23,3 +23,12 @@
     - Put right hand on the outside of opp's left knee
     - Put right foot on top of the hand on opp's left knee
     - Complete swith to mount and insert "Grape Wine Hooks"
+
+
+## Attacking the Left Arm from Side Control (Adam's special / 3D Americana)
+- Situation: Opponent has elbows tucked away
+- Step over the head with the left arm
+- Work on the left arm of the opponent and grab it
+- Stand up holding on to the arm, stepping over opp's head and pulling him on his side
+- Switch to control the arm with the left arm, grab hand on opp's arm with right hand, build figure 4
+- Execute 3D Americana, rotating counter-clockwise

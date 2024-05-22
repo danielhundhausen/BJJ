@@ -3,6 +3,26 @@
 *Position*: Closed guard bottom\
 *Goal*: Submission attacks, retention
 
+## Finn's sweep / triangle attack
+- Act like you are tired, break the grips of the opponent on the Gi
+- Come up to the right side, left shoulder to left shoulder of opponent, right arm planted on the floor and straight
+- With the hips try to sweep opponent as hard as possible
+### Kimura Variation
+- If opponent plants the left hand and the sweep fails
+- With the right hand grab the left wrist of opponent that is planted to prevent the sweep
+- With the left hand go behind the opponents arm and grab own wrist
+- Bring the thumb close to the body of opponent
+- Move the thumb towards the back of the head of opponent
+### Triangle Variation
+- If opponent plants the left hand and the sweep fails
+- Completely swing to the right side off opponents head with entire body
+- With left hand grab the left lat of opponent
+- Pull out the right knee past opponents planted arm
+- Position the right leg on opponents left shoulder
+- Raise hip and drag trapped left arm across the body
+- Move to an angle (right), ideally place right ankle in left kneepit
+- Finish the triangle
+
 ## Breaking posture 
 High priority in bottom guard is to break the posture of the opponent.
 - Makes it harder for opponent to break guard

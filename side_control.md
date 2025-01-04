@@ -32,3 +32,13 @@
 - Stand up holding on to the arm, stepping over opp's head and pulling him on his side
 - Switch to control the arm with the left arm, grab hand on opp's arm with right hand, build figure 4
 - Execute 3D Americana, rotating counter-clockwise
+
+
+## Arm Triangle from side control (left arm under opp. head)
+- Instead of pressuring shoulder to chin, go shoulder to neck
+- I opponent tries to push face with the opposite hand, use that to bring his arm up, above your head
+- Switching sides: 
+  - move right knee on opp. belly
+  - put left foot behind right thigh
+  - do windshieldwiper to other side
+- On the other side: bring head to the floor outside of opp's left arm --> apply pressure
